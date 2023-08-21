@@ -1,5 +1,17 @@
 # ngl-spammer created by crack house https://discord.gg/6vbB4fkVA6
 
+CREATION OF PUXXA (CRACK HOUSE)
+
+
+TUTORIAL
+
+↓↓↓↓↓↓↓↓
+↓↓↓↓↓↓↓↓
+↓↓↓↓↓↓↓↓
+↓↓↓↓↓↓↓↓
+
+
+
 STEP 1 .
 
 OPEN NGLspammer.py
