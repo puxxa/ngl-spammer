@@ -46,3 +46,11 @@ Enter the message that you wanna send
 
 
 ![NGL SPAMMER GITHUB 4](https://github.com/puxxa/ngl-spammer/assets/118053695/c279195b-df27-47f4-a2d5-c04ac600ab40)
+
+
+Step 5.
+
+Enjoy your spam
+
+
+![Immagine WhatsApp 2023-08-21 ore 14 24 15](https://github.com/puxxa/ngl-spammer/assets/118053695/a4f25c7a-f022-49d8-93d6-56c9bfc792e8)
