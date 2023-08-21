@@ -1,6 +1,7 @@
 # ngl-spammer created by crack house https://discord.gg/6vbB4fkVA6
 
-![CRACK HOUSE BANNER](https://github.com/puxxa/ngl-spammer/assets/118053695/76553c0e-6f8d-4505-8242-8d34d8b633f1)
+![ngl spammer crack house](https://github.com/puxxa/ngl-spammer/assets/118053695/6a71e6b6-6f0d-4083-a7d4-081a5dddd0ed) ![CRACK HOUSE BANNER](https://github.com/puxxa/ngl-spammer/assets/118053695/76553c0e-6f8d-4505-8242-8d34d8b633f1) ![ngl spammer crack house](https://github.com/puxxa/ngl-spammer/assets/118053695/6a71e6b6-6f0d-4083-a7d4-081a5dddd0ed)
+
 
 
 
